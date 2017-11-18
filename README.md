@@ -1,2 +1,2 @@
 # hello-world
-It's really nice to be here in the 3rd dimension. Being in a body is a wondergul experience!
+It's really nice to be here in the 3rd dimension. Being in a body is a wonderful experience!
